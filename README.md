@@ -1,0 +1,1 @@
+# generationalconsulting.github.io
